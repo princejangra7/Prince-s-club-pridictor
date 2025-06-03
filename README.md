@@ -1,1 +1,0 @@
-# Prince-s-club-pridictor
